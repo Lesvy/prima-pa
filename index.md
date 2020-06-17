@@ -1,3 +1,4 @@
 ## Bienvenidos a mi primera pagina
-Lesbia Tomasa Jorge POL
+Lesbia Tomasa Jorge PoL
 
+6.to administracion
